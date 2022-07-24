@@ -1,4 +1,2 @@
-- 👋 Hi, I’m @Auraaaaaaaa
-- does games and code
-
+hey bitches its me
 she/they
